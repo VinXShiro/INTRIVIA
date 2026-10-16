@@ -10,3 +10,6 @@
 
 ## Kesan Pesan Cluster [Nomor Cluster] Sejauh Ini 
 [fasil cluster ku sangat membantu ku jika aku sedang mengalamai kesulitan atau bingung mengenai perkuliahan, kakak fasil ku juga asik orangnya, enak di ajak ngobrol, teman cluster juga jadi teman yang kita kenal saat perkuliahan]
+
+## Harapan Kuliah 
+[bisa lulus 4 tahun, gk ngulang kelas, punya pertemanan yang positif]
